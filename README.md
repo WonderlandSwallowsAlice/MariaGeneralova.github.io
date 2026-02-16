@@ -1,7 +1,7 @@
 # Maria Generalova
 
-##Github:
+## Github:
 
-##Interest:
+## Interest:
 
-##Websites:
+## Websites:
